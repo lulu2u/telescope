@@ -22,20 +22,3 @@ https://mtp.telescope.name/ios_help.html
  ↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓
 Telescop加速器下载网址: https://mtp.telescope.name
 ↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑↑
-
-
-
-
-安装完Telescop就可以下载底下外国应用和网站
-
-
-
-https://telegram.org/dl
-https://www.twitter.com   
-https://www.facebook.com
-https://www.tiktok.com  
-https://www.instagram.com
-https://www.messenger.com
-https://www.youtube.com
-https://web.whatsapp.com
-https://www.google.com
